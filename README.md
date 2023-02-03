@@ -1,1 +1,1 @@
-# ReeF Bot ToS & Privacy Policy
+# ReeF Bot Documentations, ToS & Privacy Policy
